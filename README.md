@@ -16,15 +16,15 @@ Pronouns: He/His – They/Them
 
 Age: Wouldn't you like to know?
 
-Gender: Trans male! 
+Gender: N/A.
 
 –––––{🌓}–––––
 
-Favorite song(s): California Love – 2Pac, Heartless – The Weeknd
+Favorite song(s): California Love – 2Pac, Heartbeat – Childish Gambino
 
 Favorite movie(s): Any kind of comedy, horror, or action movie!
 
-Hobbies: Drawing, collecting Naruto funko pops/merch, sleeping, reading, and roleplaying (on occasion)
+Hobbies: Drawing, collecting Naruto funko pops/merch, Hellsing, Hello Kitty, cosplaying, sleeping, reading, and roleplaying! (on occasion)
 
 –––––{🌔}–––––
 
